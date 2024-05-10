@@ -12,4 +12,4 @@ Meu nome é Vinicius silva de souza
 
 @vinicius_silva506
 
-![descrição do GIF]https://tenor.com/miu2mMnxf6H.gif
+![](https://tenor.com/pt-BR/view/billy-butcher-the-boys-epic-win-lmao-cope-gif-25967773)
